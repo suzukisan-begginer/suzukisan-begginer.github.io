@@ -1,0 +1,1 @@
+# suzukisan-begginer.github.io
